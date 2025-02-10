@@ -1,1 +1,1 @@
-Seasoned technologist with a proven track record of delivering innovative software solutions on budget and on time. Strategic thinker. Reputation for being a patient communicator and emphatic listener. Well regarded by clients and team mates alike. Will learn anything.
+Experienced technologist with a proven track record of delivering innovative software solutions. Patient communicator and curious listener, well regarded by clients and team mates alike. Loves to learn.
